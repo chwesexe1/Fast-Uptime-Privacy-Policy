@@ -1,0 +1,1 @@
+# Fast-Uptime-Privacy-Policy
